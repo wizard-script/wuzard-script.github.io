@@ -1,0 +1,1 @@
+# wuzard-script.github.io
